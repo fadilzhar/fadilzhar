@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **fadilathazharif@gmail.com**
 
-- ⚡ Fun fact **I used to go to England**
+- ⚡ Fun fact **I used to live and study in England**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
